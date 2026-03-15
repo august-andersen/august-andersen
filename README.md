@@ -1,6 +1,6 @@
 ### august andersen
 
-entrepreneur | yale '30
+builder | yale '30
 
 exited edtech founder · currently building @ stealth  
 
