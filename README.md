@@ -2,8 +2,6 @@
 
 entrepreneur | yale '30
 
-shipping software since 12 — apps, infrastructure, etc.
-
-currently building @ stealth · exited edtech founder
+exited edtech founder · currently building @ stealth  
 
 [site](https://augustandersen.com) · [linkedin](https://linkedin.com/in/august-andersen)
