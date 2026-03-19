@@ -1,8 +1,8 @@
 ### august andersen
 
-yale '30
+entrepreneur | yale '30
 
-building stealth ai
+building @ stealth ai
 
 [site](https://augustandersen.com) · [linkedin](https://linkedin.com/in/august-andersen)
 
