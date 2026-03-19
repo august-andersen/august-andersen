@@ -1,8 +1,8 @@
 ### august andersen
 
-ep&e and cs at yale
+yale '30
 
-building at stealth ai
+building stealth ai
 
 [site](https://augustandersen.com) · [linkedin](https://linkedin.com/in/august-andersen)
 
